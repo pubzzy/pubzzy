@@ -1,5 +1,5 @@
-### Hi there 👋, Pubudu Lakshan
-#### Electrical and Electronic Engineering Undergraduate, UOP
+### Hi there 👋, I'm Pubudu Lakshan
+#### Electrical and Electronic Engineering Undergraduate,UOP
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
